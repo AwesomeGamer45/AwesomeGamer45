@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @AwesomeGamer45
+- 👀 I’m interested in ML
+- 🌱 I’m currently learning new stuffs
+- 💞️ I’m looking to collaborate on projects like amazon 
+- 📫 How to reach me in discord
